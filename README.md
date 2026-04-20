@@ -1,1 +1,0 @@
-# Medicon-theme
